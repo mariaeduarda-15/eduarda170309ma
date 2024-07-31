@@ -10,9 +10,9 @@ utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 ###vocẽ pode entrar em contato comigo📬
 
-![image](https://github.com/user-attachments/assets/07b19869-87a4-4f20-bf75-5a27b79f4f42)
-
 ramos.silva17@escola.pr.gov.br
+
+![image](https://github.com/user-attachments/assets/4ead079a-02b8-4e56-9d21-50ae0532f895)
 
 
 
