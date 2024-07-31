@@ -12,7 +12,8 @@ utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 ramos.silva17@escola.pr.gov.br
 
-![image](https://github.com/user-attachments/assets/4ead079a-02b8-4e56-9d21-50ae0532f895)
+![image](https://github.com/user-attachments/assets/359685d5-0e43-43fc-8ffc-2e9e73255061)
+
 
 
 
